@@ -1,3 +1,3 @@
-(THIS IS THE SAD AND DISTURBING AND DISAPPOINTING TRUTH ABOUT YURILAND..... )
+(THIS IS THE SAD ,DISTURBING AND DISAPPOINTING TRUTH ABOUT YURILAND..... )
 
-![](https://files.catbox.moe/uuskbz.png)
+![](https://files.catbox.moe/4opw92.jpg)
