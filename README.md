@@ -3,8 +3,6 @@
 
 <p align="center"
 
-  ྀི.𓇼  raging 🄷imejoshi
+check out my [s](https://iwillneverforgetwhativedone.straw.page/)traw.page
 
-. [𝑅](https://rentry.co/nikolaiek)entry :℘ [𝒫](https://pronouns.cc/vee)rns.cc
-
-[t](https://twitter.com/@yuricellent)wittr 𝄡
+ill make this look epic later😅
